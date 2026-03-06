@@ -1,1 +1,0 @@
-# alphas_profit_portfolio
